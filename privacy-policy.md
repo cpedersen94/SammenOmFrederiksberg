@@ -1,0 +1,2 @@
+# SammenOmFrederiksberg
+Privacy policy
